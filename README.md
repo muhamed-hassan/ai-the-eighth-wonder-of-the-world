@@ -2,6 +2,8 @@
 
 For fun mates, check those fucken legendary bullshit 💩 that will replace humans in the future by producing a lot of fucken misery toys ???!
 
+The result of illegal education can be concluded from [`HERE`](https://github.com/muhamed-hassan/production_deployment_syndrome/wiki#%D9%85%D8%AA%D9%84%D8%A7%D8%B2%D9%85%D8%A9-%D8%A7%D9%84%D9%85%D8%B9%D8%A7%D8%AF%D9%84%D8%A7%D8%AA-%D9%84%D8%AF%D9%83%D8%A7%D8%AA%D8%B1%D8%A9-%D8%A7%D9%84%D8%AC%D8%A7%D9%85%D8%B9%D8%A9----formulas-syndrome-of-university-professors).
+
 ***
 ***
 
