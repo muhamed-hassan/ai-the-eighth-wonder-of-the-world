@@ -26,3 +26,6 @@ The result of illegal education can be concluded from [`HERE`](https://github.co
 ![the-5-most-mysterious-temples-of-india-2-1280x720](https://github.com/muhamed-hassan/ai-the-eighth-wonder-of-the-world/assets/17825804/571ea468-b85b-425d-8797-f6dfba2a606f)
 
 ![SriGanesh](https://github.com/muhamed-hassan/ai-the-eighth-wonder-of-the-world/assets/17825804/6bfa1f84-782f-44e9-b392-ab8f216dea71)
+
+![dhfbwz0-29a3964d-2985-44c7-8556-762614226a79](https://github.com/muhamed-hassan/ai-the-eighth-wonder-of-the-world/assets/17825804/48d99b15-2e96-4ffe-aeec-d5a4cb396d7a)
+
