@@ -17,8 +17,6 @@ The result of illegal education can be concluded from [`HERE`](https://github.co
 
 ![Shiv-temple-in-India-1](https://github.com/muhamed-hassan/ai-the-eighth-wonder-of-the-world/assets/17825804/44c5c7d2-4755-4f62-80a3-92da1de150e0)
 
-![Sea-Side-temples-in-India](https://github.com/muhamed-hassan/ai-the-eighth-wonder-of-the-world/assets/17825804/aaf8477a-d92b-4ce8-94dc-0027bdc396ef)
-
 ![e81798a49eac321a204a41f7caf50edfphoto15272215799960de6d1ae2069](https://github.com/muhamed-hassan/ai-the-eighth-wonder-of-the-world/assets/17825804/591d4a7a-bcc7-4721-89f4-b04125e90ab6)
 
 ![12f123aa9be69390140e62033ace8194photo1549083449aa6e43965934](https://github.com/muhamed-hassan/ai-the-eighth-wonder-of-the-world/assets/17825804/2a0f5507-a4d0-461e-a9d4-3ab4c448fe1c)
