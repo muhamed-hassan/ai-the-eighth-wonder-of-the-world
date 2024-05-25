@@ -4,7 +4,7 @@ For fun mates, check those fucken legendary bullshit 💩 that will replace huma
 
 The result of illegal education can be concluded from [`HERE`](https://github.com/muhamed-hassan/production_deployment_syndrome/wiki#%D9%85%D8%AA%D9%84%D8%A7%D8%B2%D9%85%D8%A9-%D8%A7%D9%84%D9%85%D8%B9%D8%A7%D8%AF%D9%84%D8%A7%D8%AA-%D9%84%D8%AF%D9%83%D8%A7%D8%AA%D8%B1%D8%A9-%D8%A7%D9%84%D8%AC%D8%A7%D9%85%D8%B9%D8%A9----formulas-syndrome-of-university-professors).
 
-[**`Warm-up`**](https://youtu.be/C8BP8K-ZuL0?si=HitcXVUid5nmAYIR)
+[**`Warm-up 🤗 🥳 🧐 🙌 ✌`**](https://youtu.be/C8BP8K-ZuL0?si=HitcXVUid5nmAYIR)
 
 ***
 ***
