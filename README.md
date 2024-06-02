@@ -1,3 +1,5 @@
+![giphy](https://github.com/muhamed-hassan/ai-the-eighth-wonder-of-the-world/assets/17825804/efc95ef1-629b-4d25-8ed5-611b4ba6166e)
+
 ### Please visit the wiki for more info https://github.com/muhamed-hassan/ai-the-eighth-wonder-of-the-world/wiki
 
 For fun mates, check those fucken legendary bullshit 💩 that will replace humans in the future by producing a lot of fucken misery toys ???!
