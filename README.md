@@ -8,6 +8,8 @@ The result of illegal education can be concluded from [`HERE`](https://github.co
 
 [**`Warm-up 🤗 🥳 🧐 🙌 ✌`**](https://youtu.be/C8BP8K-ZuL0?si=HitcXVUid5nmAYIR) vs. [**WTF**](https://www.youtube.com/watch?v=9i94opWcYLE) and [**WTF-01**](https://www.youtube.com/watch?v=GLG08oT3HwM)
 
+[Is AI beating human intelligence??? 🤔](https://www.youtube.com/watch?v=r5k0J42J5Fc)
+
 ***
 ***
 
