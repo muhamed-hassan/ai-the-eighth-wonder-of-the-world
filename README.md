@@ -10,6 +10,8 @@ The result of illegal education can be concluded from [`HERE`](https://github.co
 
 [Is AI beating human intelligence??? 🤔](https://www.youtube.com/watch?v=r5k0J42J5Fc)
 
+[AI x0](https://www.youtube.com/watch?v=gO3Z2xwCpgI)
+
 ***
 ***
 
