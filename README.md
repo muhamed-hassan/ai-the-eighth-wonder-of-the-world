@@ -12,6 +12,8 @@ The result of illegal education can be concluded from [`HERE`](https://github.co
 
 [AI x0](https://www.youtube.com/watch?v=gO3Z2xwCpgI)
 
+[AI x1](https://www.youtube.com/watch?v=mEsleV16qdo)
+
 ***
 ***
 
