@@ -60,3 +60,15 @@ The result of illegal education can be concluded from [`HERE`](https://github.co
 ![hindu-goddess-durga-deity-weapons-dy64f6ru7wcok2m2](https://github.com/user-attachments/assets/09ad61ba-d446-4eea-893c-62d504aa03e2)
 
 ![HD-wallpaper-buddha-art-work-god-bhakti-lord-buddha](https://github.com/user-attachments/assets/0eed617b-9efc-4bcf-b5b4-0a1a46f82c07)
+
+![Zoroastrian_themes,_Yazd_(7)_(28680481041)](https://github.com/user-attachments/assets/15b6cf66-77ba-4065-9bd8-8ef8af4ff6c9)
+
+![wp13849346](https://github.com/user-attachments/assets/cee96aa2-1f73-4a05-a403-566047bf6a64)
+
+![prompt-HD-Zoroastrian-Ahura-Mazda-statue-1](https://github.com/user-attachments/assets/069b9d78-ea76-425a-bd13-a1f81eadbb4b)
+
+![fb91fae9-93fd-4b30-9448-d602dbf9ab61_1024x1024](https://github.com/user-attachments/assets/f6b24f01-aa6e-4704-b491-62e5283cc9a9)
+
+![desktop-wallpaper-jain-god-for-android-jainism](https://github.com/user-attachments/assets/4a16b0da-36c4-4a45-8780-ff673313cc13)
+
+![1200px-Mariage_of_Shiva_and_Parvati_(Meenakshi)_witnessed_by_Vishnu,_Meenakshi_Temple,_Madurai_(2)_(36857653813)](https://github.com/user-attachments/assets/47fac033-adc0-4623-9b93-7fb6ad02788c)
