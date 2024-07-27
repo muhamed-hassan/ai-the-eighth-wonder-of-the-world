@@ -39,3 +39,24 @@ The result of illegal education can be concluded from [`HERE`](https://github.co
 
 ![dhfbwz0-29a3964d-2985-44c7-8556-762614226a79](https://github.com/muhamed-hassan/ai-the-eighth-wonder-of-the-world/assets/17825804/48d99b15-2e96-4ffe-aeec-d5a4cb396d7a)
 
+![HD-wallpaper-avalokitesvara-buddha-buddhism-buddhist-om-ommanipadmehum-religion-spiritual](https://github.com/user-attachments/assets/8f6aa525-63be-436f-ab3e-54af5431e993)
+
+![dgkgutl-6bac6bce-93f5-41cd-9bb1-cddd2aff7e82](https://github.com/user-attachments/assets/9515a9b8-863a-4bb1-98f1-1978129e6401)
+
+![desktop-wallpaper-which-is-the-best-hindi-or-english-translation-edition-of-ramayana-hinduism-ram-darbar](https://github.com/user-attachments/assets/a81afda9-c65d-44dd-a5d7-259ff6ef42ff)
+
+![desktop-wallpaper-eagle-in-hinduism-garuda-bhagwan-jatayu-sampati-brahma-vishnu-shiva](https://github.com/user-attachments/assets/64816ff0-f4a4-461a-9577-d0adc2753a72)
+
+![9636313c947953e8cbdbc051a60e17cb](https://github.com/user-attachments/assets/6a385d89-81cf-47ec-97f4-eb861aab22de)
+
+![507677-buddha-spiritual](https://github.com/user-attachments/assets/1860e9d3-0d68-498c-afc2-e0d49aee2107)
+
+![344853](https://github.com/user-attachments/assets/6cafa67b-4531-4320-bf55-abf8b1956beb)
+
+![176850](https://github.com/user-attachments/assets/e39e2784-a090-494e-88b2-a2406603b3e2)
+
+![premium_photo-1678303397238-76250a5ebf73](https://github.com/user-attachments/assets/a99cd2b9-b7ab-47ef-a316-bc5b5d904de8)
+
+![hindu-goddess-durga-deity-weapons-dy64f6ru7wcok2m2](https://github.com/user-attachments/assets/09ad61ba-d446-4eea-893c-62d504aa03e2)
+
+![HD-wallpaper-buddha-art-work-god-bhakti-lord-buddha](https://github.com/user-attachments/assets/0eed617b-9efc-4bcf-b5b4-0a1a46f82c07)
