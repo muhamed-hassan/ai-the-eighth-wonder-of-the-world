@@ -57,13 +57,15 @@ The result of illegal education can be concluded from [`HERE`](https://github.co
 
 ![176850](https://github.com/user-attachments/assets/e39e2784-a090-494e-88b2-a2406603b3e2)
 
-![premium_photo-1678303397238-76250a5ebf73](https://github.com/user-attachments/assets/a99cd2b9-b7ab-47ef-a316-bc5b5d904de8)
+![1715683678305](https://github.com/user-attachments/assets/9316d45b-5fc4-494a-9177-a27a7c717a3d)
 
 ![hindu-goddess-durga-deity-weapons-dy64f6ru7wcok2m2](https://github.com/user-attachments/assets/09ad61ba-d446-4eea-893c-62d504aa03e2)
 
 ![HD-wallpaper-buddha-art-work-god-bhakti-lord-buddha](https://github.com/user-attachments/assets/0eed617b-9efc-4bcf-b5b4-0a1a46f82c07)
 
-![Zoroastrian_themes,_Yazd_(7)_(28680481041)](https://github.com/user-attachments/assets/15b6cf66-77ba-4065-9bd8-8ef8af4ff6c9)
+![photo-1622279486466-e0e3bfdd0a01](https://github.com/user-attachments/assets/f2bf5e03-73f0-477c-985d-dc7f45657de2)
+
+![hindu-8514149_1280](https://github.com/user-attachments/assets/8e705d30-75b6-4e6a-bf84-db5c093cc767)
 
 ![wp13849346](https://github.com/user-attachments/assets/cee96aa2-1f73-4a05-a403-566047bf6a64)
 
