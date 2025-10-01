@@ -21,6 +21,8 @@ The result of illegal education can be concluded from [`HERE`](https://github.co
 ***
 ***
 
+![cy4ggbimi5kthn5jminw](https://github.com/user-attachments/assets/9b57e3a5-92e8-4606-bb87-359e3d9018fa)
+
 ![100928-monkeys-hmed-7a](https://github.com/muhamed-hassan/ai-the-eighth-wonder-of-the-world/assets/17825804/8c9ac51c-3695-42b0-b4be-ca5c2c6e2d1a)
 
 ![03_AnimalTemplesIndia__GaltajiTemple_shutterstock_1031570731](https://github.com/muhamed-hassan/ai-the-eighth-wonder-of-the-world/assets/17825804/7b251b16-2ae7-44b5-8a4a-5a0d8f6942ed)
