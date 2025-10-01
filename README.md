@@ -37,12 +37,6 @@ The result of illegal education can be concluded from [`HERE`](https://github.co
 
 ![e81798a49eac321a204a41f7caf50edfphoto15272215799960de6d1ae2069](https://github.com/muhamed-hassan/ai-the-eighth-wonder-of-the-world/assets/17825804/591d4a7a-bcc7-4721-89f4-b04125e90ab6)
 
-![12f123aa9be69390140e62033ace8194photo1549083449aa6e43965934](https://github.com/muhamed-hassan/ai-the-eighth-wonder-of-the-world/assets/17825804/2a0f5507-a4d0-461e-a9d4-3ab4c448fe1c)
-
-![gettyimages-526511224-1024x1024](https://github.com/muhamed-hassan/ai-the-eighth-wonder-of-the-world/assets/17825804/7994d2b8-1f48-4390-ad74-e436378ac99e)
-
-![SriGanesh](https://github.com/muhamed-hassan/ai-the-eighth-wonder-of-the-world/assets/17825804/6bfa1f84-782f-44e9-b392-ab8f216dea71)
-
 ![dhfbwz0-29a3964d-2985-44c7-8556-762614226a79](https://github.com/muhamed-hassan/ai-the-eighth-wonder-of-the-world/assets/17825804/48d99b15-2e96-4ffe-aeec-d5a4cb396d7a)
 
 ![HD-wallpaper-avalokitesvara-buddha-buddhism-buddhist-om-ommanipadmehum-religion-spiritual](https://github.com/user-attachments/assets/8f6aa525-63be-436f-ab3e-54af5431e993)
@@ -80,3 +74,8 @@ The result of illegal education can be concluded from [`HERE`](https://github.co
 ![desktop-wallpaper-jain-god-for-android-jainism](https://github.com/user-attachments/assets/4a16b0da-36c4-4a45-8780-ff673313cc13)
 
 ![1200px-Mariage_of_Shiva_and_Parvati_(Meenakshi)_witnessed_by_Vishnu,_Meenakshi_Temple,_Madurai_(2)_(36857653813)](https://github.com/user-attachments/assets/47fac033-adc0-4623-9b93-7fb6ad02788c)
+
+![banner2](https://github.com/user-attachments/assets/6e9aa9b0-37a9-4db3-b558-43cf3442fe9b)
+
+![gkTrzFyn6g3ciSrdAonSrW](https://github.com/user-attachments/assets/c8da9975-61e0-4bfd-a7c6-948669fa2f67)
+
