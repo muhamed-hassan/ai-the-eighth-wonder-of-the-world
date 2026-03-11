@@ -2,7 +2,7 @@
 
 ***
 
-# [Indian-hindus](https://www.youtube.com/watch?v=Uq9gPaIzbe8) ✡️ ☠ 💩 🏳️‍🌈 🛡 ⚠ 🚫 ❌ COMDEY SHOW 🌍 
+# [Indian-hindus](https://www.youtube.com/watch?v=Uq9gPaIzbe8) ✡️ ☠ 💩   🛡 ⚠ 🚫 ❌ COMDEY SHOW 🌍 
 
 ![giphy](https://github.com/muhamed-hassan/ai-the-eighth-wonder-of-the-world/assets/17825804/efc95ef1-629b-4d25-8ed5-611b4ba6166e)
 
@@ -12,17 +12,21 @@ For fun mates, check those fucken legendary bullshit 💩 that will replace huma
 
 The result of illegal education can be concluded from [`HERE`](https://github.com/muhamed-hassan/production_deployment_syndrome/wiki#%D9%85%D8%AA%D9%84%D8%A7%D8%B2%D9%85%D8%A9-%D8%A7%D9%84%D9%85%D8%B9%D8%A7%D8%AF%D9%84%D8%A7%D8%AA-%D9%84%D8%AF%D9%83%D8%A7%D8%AA%D8%B1%D8%A9-%D8%A7%D9%84%D8%AC%D8%A7%D9%85%D8%B9%D8%A9----formulas-syndrome-of-university-professors).
 
-[**`Warm-up 🤗 🥳 🧐 🙌 ✌`**](https://youtu.be/C8BP8K-ZuL0?si=HitcXVUid5nmAYIR) vs. [**WTF**](https://www.youtube.com/watch?v=9i94opWcYLE) and [**WTF-01**](https://www.youtube.com/watch?v=GLG08oT3HwM)
+[**WTF 🤗 🥳 🧐 🙌 ✌**](https://www.youtube.com/watch?v=9i94opWcYLE)
 
 [Is AI beating human intelligence??? 🤔](https://www.youtube.com/watch?v=r5k0J42J5Fc)
 
-[AI x0 💩](https://www.youtube.com/watch?v=gO3Z2xwCpgI)
+[Fancy advertising like strippers in nightclubs, shiny but they're not real females 🏳️‍🌈](https://www.youtube.com/watch?v=Ok-xpKjKp2g)
 
-[AI x1 💩](https://www.youtube.com/watch?v=mEsleV16qdo)
+[AI x1 💩](https://www.youtube.com/watch?v=gO3Z2xwCpgI)
 
-[AI x2 💩](https://www.youtube.com/watch?v=N4FBwXxKbGc)
+[AI x2 💩](https://www.youtube.com/watch?v=tw9USlQh6jw)
 
-[AI x3 💩](https://www.youtube.com/@Planet.AI_)
+[AI x3 💩](https://www.youtube.com/watch?v=N4FBwXxKbGc)
+
+[AI x4 💩](https://www.youtube.com/watch?v=G97ZJU44vTY)
+
+[AI x5 💩](https://www.youtube.com/watch?v=aZ5EsdnpLMI)
 
 ***
 ***
