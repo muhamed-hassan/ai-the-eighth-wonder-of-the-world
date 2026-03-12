@@ -22,7 +22,7 @@ The result of illegal education can be concluded from [`HERE`](https://github.co
 
 [AI x2 💩](https://www.youtube.com/watch?v=tw9USlQh6jw)
 
-[AI x3 💩](https://www.youtube.com/watch?v=N4FBwXxKbGc)
+[AI x3 💩](https://www.youtube.com/watch?v=IihCs10Mf1Y)
 
 [AI x4 💩](https://www.youtube.com/watch?v=G97ZJU44vTY)
 
